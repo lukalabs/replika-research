@@ -1,1 +1,1 @@
-Tinkoff NLP Meetup (recording)[https://youtu.be/SwfzebRc1ZU?t=4072]
+Tinkoff NLP Meetup [recording](https://youtu.be/SwfzebRc1ZU?t=4072)
